@@ -13,6 +13,5 @@ Awesome? Super awesome!
 
 Yeeeee--haw.
 
-Me hacks. hacks is me.
 
 Yeeee haw.
